@@ -1,2 +1,0 @@
-# Ryan
-in class practice
